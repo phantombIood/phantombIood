@@ -1,5 +1,5 @@
  <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=phantombIood&style=flat&color=B4B4B4&label=♱&abbreviated=true">
+  ⏔⏔⏔ ꒰&emsp;<img src="https://komarev.com/ghpvc/?username=phantombIood&style=flat&color=B4B4B4&label=♱&abbreviated=true"> &emsp;꒱ ⏔⏔⏔
 </a>
 
 &emsp;
