@@ -20,3 +20,5 @@
 
 <p align="center"> 
 ﹒ &emsp;　𓏼　&emsp;astrid&emsp;/&emsp; olivia&emsp;   ⌣  &emsp;  .
+ <p align="center">
+  ◟ 𖹭&emsp;&emsp; audhd &emsp; ◡◡ &emsp; infp &emsp;&emsp;۶۟ৎ
