@@ -22,3 +22,10 @@
 ﹒ &emsp;　𓏼　&emsp;astrid&emsp;/&emsp; olivia&emsp;   ⌣  &emsp;  .
  <p align="center">
   ◟ 𖹭&emsp;&emsp; audhd &emsp; ◡◡ &emsp; infp &emsp;&emsp;۶۟ৎ
+
+  &emsp;
+
+  <p align="center">
+  <img width="540" height="46" alt="1000029440" src="https://github.com/user-attachments/assets/9d1d4df8-3cc9-4a3c-8c1d-2953e22e3d3a" />
+
+
