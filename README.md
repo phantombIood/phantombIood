@@ -30,4 +30,10 @@
 <p align="center">
 <img width="290" height="40" alt="1000029438" src="https://github.com/user-attachments/assets/7abb0072-08d0-4fb6-93f5-5c77602c3e06" />
 
+&emsp;
+
+<p align="center" dir="auto">
+  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ellerzbngs5de3pe7q6zgz5zny&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=cfcfcf&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>
+
+
 
