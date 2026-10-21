@@ -26,6 +26,11 @@
   &emsp;
 
   <p align="center">
+<a href=https://rentry.co/rxquiem>rentry</a>&emsp;&emsp;&emsp;<a href=https://vxlenfield.atabook.org/>ata</a>&emsp;&emsp;&emsp;<a href=https://harrymxson.straw.page>straw</a>
+
+&emsp;
+
+  <p align="center">
   <img width="540" height="46" alt="1000029440" src="https://github.com/user-attachments/assets/9d1d4df8-3cc9-4a3c-8c1d-2953e22e3d3a" />
 <p align="center">
 <img width="290" height="40" alt="1000029438" src="https://github.com/user-attachments/assets/7abb0072-08d0-4fb6-93f5-5c77602c3e06" />
